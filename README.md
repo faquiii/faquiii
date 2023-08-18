@@ -2,7 +2,7 @@
 - 👀 I’m interested in my boyfriend
 - 🌱 i like furrys
 - 💞️ Make them suffer
-- 📫 How i kill my self?
+- 📫 How i kiss?
 
 <!---
 faquiii/faquiii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
